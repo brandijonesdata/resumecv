@@ -1,2 +1,2 @@
-Brandi Jones Current Resume and CV
-#brandijonesdata@gmail.com
+Brandi Jones (brandijonesdata@gmail.com) Current Resume and CV
+
